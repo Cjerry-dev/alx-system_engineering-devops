@@ -1,1 +1,1 @@
-this project is for redirection
+another chance to do hard things
